@@ -1,1 +1,1 @@
-# PrimarySchool for dagbeneva and daahiatak
+# PrimarySchool for dagbeneva and davahiatak
